@@ -1,1 +1,1 @@
-# A first-level Mrs. Waterson's Science Stuff
+# Mrs. Waterson's Science Stuff
